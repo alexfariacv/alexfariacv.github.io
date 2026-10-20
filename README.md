@@ -1,2 +1,13 @@
+Currículo Digital Alex Brazil 
+
 # alexfariacv.github.io
-Curriculo Digital cv-site
+
+Work and Travel 
+Voluntario 
+Fotografia
+Gestão 
+Google 
+
+# alexfariacv.github.io
+
+Viajar e Trabalhar
